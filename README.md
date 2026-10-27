@@ -1,4 +1,4 @@
-# Olá
+# Olá ☠️🤘
 
 Meu nome é Brenno e sou estudante de  **Desenvolvimento de Sistema**.
 
